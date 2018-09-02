@@ -8,6 +8,8 @@ Para ouvir músicas toque abaxo:</p>
 <p>Eng. do Hawai ► <a href="http://bit.ly/EHawai">http://bit.ly/EHawai</a></p>
 <p>Rappa ► <a href="http://bit.ly/Rappa_">http://bit.ly/Rappa_</a></p>
 <p>◾INTERNACIONAL◾</p>
+<p>Mick Jagger ► <a href="http://bit.ly/MickJagger_">http://bit.ly/MickJagger_</a></p>
+<p>Rolling Stones ► <a href="http://bit.ly/RollingSt0nes_">http://bit.ly/RollingSt0nes_</a></p>
 <p>Bob Marley ► <a href="http://bit.ly/BMarley_">http://bit.ly/BMarley_</a></p>
 <p>Bob Dylan ► <a href="http://bit.ly/BobDyla_">http://bit.ly/BobDyla_</a></p>
 <p>Cold Play ► <a href="http://bit.ly/C0ldPlay_">http://bit.ly/C0ldPlay_</a></p>
